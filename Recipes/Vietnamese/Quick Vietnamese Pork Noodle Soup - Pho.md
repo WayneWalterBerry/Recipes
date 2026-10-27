@@ -24,7 +24,7 @@ This is my reciepe for a fast (20 minutes of preperation) using beef base paste.
 - 6 Basil leaves
 - Sliced Thai Chillies
 
-## Preparation
+## Directions
 
 1. Crush the ginger with a pestle and mortar, leaving it in one piece. The back of a big knife will do the job just as well. Grill the ginger and onion in the bottom of a large poit until they turn slightly brown and smell fragrant.
 2. Add the Beef base paste and the 10 cups of water to the pot, bring to a boil making sure that the paste disovles.

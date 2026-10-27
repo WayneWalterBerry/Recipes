@@ -16,7 +16,7 @@
 - ⅓ cup sour cream
 - 2 teaspoons lemon juice
 
-## Preparation
+## Directions
 
 1. Heat oven to 325 degrees. Line the bottom of a 9-inch springform pan with parchment paper. Butter the paper and sides of the pan. Wrap two layers of foil under the pan, and place it on a buttered baking sheet.
 2. In a medium bowl, mix rhubarb, cornstarch and 1/2 cup granulated sugar.

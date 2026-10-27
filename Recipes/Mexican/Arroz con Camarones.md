@@ -23,7 +23,7 @@ This rice and shrimp dish has a lot of flavor, because the shrimp shells are ble
 - Salt and Pepper
 - 1 tablespoon chopped fresh parsley
 
-## Preparation
+## Directions
 
 1. In a small pot place the un-peeled shrimp, fish bouillon tablet and water and cook for about 3 minutes on medium hight heat or until the shrimp turns pink they should be about half way cooked.
 2. Transfer the shrimp to a bowl. Peel and put the shells back into the pot with the stock. Continue to cook the stock.

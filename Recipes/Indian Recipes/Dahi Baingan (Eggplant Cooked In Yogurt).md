@@ -24,7 +24,7 @@
 - pinch of garam masala pwd
 - pinch of dried fenugreek leaves.
 
-## Preparation
+## Directions
 
 1. In a bowl, combine yogurt, chilli powder, coriander powder, anise powder, salt, coriander leaves and green chilies. Set a side.
 2. Heat oil in a vessel, add cumin seeds and let them sputter.

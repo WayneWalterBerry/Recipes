@@ -9,7 +9,7 @@
 - 2 tablespoons freshly grated lime zest and ⅓ cup lime juice (from 3 limes), plus more lime zest for garnish
 - 8 to 10 ounces Biscoff or gingersnap cookies, plus more for garnish
 
-## Preparation
+## Directions
 
 1. Rinse a standard 8½-by-4½-inch loaf pan and shake off the excess water. Use a few sheets of plastic wrap to fully line the pan, making sure it lays as flat as possible and comes all the way up the sides with overhang. (The residual moisture from rinsing will encourage the plastic wrap to adhere.)
 2. Add heavy cream to a large bowl. Using an electric mixer, beat just until stiff peaks form. Add condensed milk, cream cheese and 1 teaspoon salt and whip until the cream cheese has been evenly incorporated. Add lime zest and juice and briefly beat to combine.

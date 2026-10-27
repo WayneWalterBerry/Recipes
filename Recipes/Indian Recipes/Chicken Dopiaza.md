@@ -1,6 +1,6 @@
 # Chicken Dopiaza
 
-## Ingridents
+## Ingredients
 
 - 1 lb chicken breast, cubed
 - 6 shallots onions, halved

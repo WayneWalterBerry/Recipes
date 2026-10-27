@@ -9,7 +9,7 @@
 - 2½ teaspoons kosher salt
 - 1¼ cups cold buttermilk
 
-## Preparation
+## Directions
 
 1. Heat oven to 375 degrees and line a large sheet pan with parchment paper or foil.
 2. Coarsely grate the butter onto a plate, then freeze until cold and hard, at least 10 minutes. Meanwhile, in a large bowl, whisk together the flour, sugar, baking powder and salt. Add the butter to the dry ingredients. Using a spoon, toss together until all of the butter is coated with flour.

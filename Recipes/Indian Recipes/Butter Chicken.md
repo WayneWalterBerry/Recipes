@@ -44,7 +44,7 @@
 - Salt to taste
 - Coriander leaves to garnish
 
-## Preparation
+## Directions
 
 1. Mix the chicken, lime juice, salt and red chili powder, cumin, coriander, turmeric, in a large, non-metallic bowl. Cover and allow to marinate for 10 minutes.
 2. Heat a flat pan or griddle on medium heat and gently roast (stirring frequently) the cloves, peppercorns, cinnamon, bay leaves and almonds till they darken slightly. Cool and add the cardamom seeds. Now grind into a coarse powder in a clean, dry coffee grinder.

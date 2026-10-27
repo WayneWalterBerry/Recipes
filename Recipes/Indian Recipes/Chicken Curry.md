@@ -16,7 +16,7 @@
 - 1 sprig Fresh curry leaves (6-8 leaves)
 - 2 tablespoons - Oil
 
-## Preparation
+## Directions
 
 1. Heat oil add the chopped onions and saute for 4 minutes.
 2. Add ginger garlic paste and saute for 2 minutes.

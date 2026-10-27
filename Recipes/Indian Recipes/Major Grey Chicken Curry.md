@@ -15,7 +15,7 @@ Shamiana Restaurant Style, Kirkland, WA
 - 2 tablespoons of vegetable oil
 - 2 green onions diced.
 
-## Preparation
+## Directions
 
 1. Cut up, debone, skin, and remove fat from the chicken to get 1 inch pieces of thinly sliced white and dark meat chicken flesh. When done you should have 3 lbs all the pieces should be the same size.
 2. Heat oil in a sauté pan and cook finely chopped yellow onion on medium heat until translucent, not brown. This takes about 4 minutes.

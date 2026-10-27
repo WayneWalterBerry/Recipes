@@ -22,7 +22,7 @@ Dal makhani is delicacy from punjab filled with rich proteins and fiber.
 - 2 tbs. chopped coriander leaves (optional)
 - Salt to taste
 
-## Preparation
+## Directions
 
 1. Cook the washed lentils and Kidney beans in 4 cups of water, red chili powder, fennel seeds powder, turmeric, and grated ginger till dal and rajma are soft.
 2. Heat butter in a thick bottomed pan. Add cumin seeds and Asafoetida, let it crackle.

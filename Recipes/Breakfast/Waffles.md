@@ -12,7 +12,7 @@
 - 3/4 Cup Vegetable Oil
 - 1/4 Cup Honey
 
-## Instructions
+## Directions
 
 1. In a medium bowl combine all dry ingredients with a whisk.
 2. In a large bowl whisk together milk and eggs until frothy.

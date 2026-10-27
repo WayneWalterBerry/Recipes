@@ -20,7 +20,7 @@ The secret to this dish is to keep the ingredients dry while preparing the dish,
 - 1/2 teaspoon Garam masala powder
 - 1/4 cup dry grated coconut
 
-## Method
+## Directions
 
 1. Fully defrost frozen shrimp and dry with paper towel.
 2. Marinate the prawns in ginger paste, green chili paste, chilli powder, turmeric powder, yogurt and salt for 10 minutes.

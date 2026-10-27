@@ -28,7 +28,7 @@
 - Coriander leaves: 2 tablespoons (finely chopped for garnish)
 - Oil: 2 tablespoons
 
-## Method
+## Directions
 
 1. Marinate the chicken in yogurt, coriander powder, cumin powder, turmeric powder, lemon juice and ginger-garlic-green chili paste for 10 minutes.
 2. Heat oil in a cooking vessel, add the star anise, cinnamon stick and chopped onions and fry for 4 minutes.

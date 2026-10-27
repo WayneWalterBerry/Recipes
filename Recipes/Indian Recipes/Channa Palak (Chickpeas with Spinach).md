@@ -20,7 +20,7 @@
 - 1-2 bunches of spinach, coarsely chopped (you can use as much or as little, as per taste)
 - 1 can of chickpeas (gabonzo beans)
 
-## Preparation
+## Directions
 
 1. In a pan, heat 1 tsp of oil. Add cumin seeds, fennel seeds, cinnamon stick, cardamom powder, bay leaf in that order.
 2. The second the aroma starts wafting, add the onion and then ginger garlic paste. Saute until onion get soft about 4 minutes.

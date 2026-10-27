@@ -9,7 +9,7 @@ Do not use any oil. The oil will not make the potatoes any browner – all it wi
 - 8-10 potatoes (any kind)
 - 1 sweet onion
 
-## Preparation
+## Directions
 
 1. Grate the hash browns with hand grater or a food processor. I find a hand grater is just as faster as the food processor, and it is easier to clean up.
 2. Take a handful of the hash browns and squeeze as hard as you can over the sink, this will get a lot of the water out of the grated potatoes. Put the squeezed grated potatoes on a cookie sheet lined with a paper towel to wick away additional water. Continue taking hand full of potatoes squeezing the water out of out them over the sink until all the potatoes are squeezed.
@@ -19,6 +19,6 @@ Do not use any oil. The oil will not make the potatoes any browner – all it wi
 
 Serves: 4
 
-## Note
+## Notes
 
 There are no eggs, flour, thicker (like MSG), or oil in this recipe – making good hash brown is about technique.

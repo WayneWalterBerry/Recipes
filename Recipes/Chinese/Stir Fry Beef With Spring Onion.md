@@ -1,6 +1,6 @@
 # Stir Fry Beef With Spring Onion
 
-## Ingridents
+## Ingredients
 
 ### Marinade
 

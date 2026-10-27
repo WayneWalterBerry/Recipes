@@ -17,7 +17,7 @@
 - 1 cup mung bean sprouts
 - Toasted sesame seeds, for garnish
 
-## Preparation
+## Directions
 
 1. In a small bowl, combine soy sauce, sugar, garlic, black pepper, 2 tablespoons of the scallions and 1/4 teaspoon sesame oil, stirring to dissolve the sugar. Transfer half of the sauce to another small bowl.
 2. Thinly slice beef crosswise about 1/8-inch-thick, then cut into 2-inch strips. Add beef to one bowl and toss to evenly coat, massaging sauce into beef. Let stand for 15 minutes.

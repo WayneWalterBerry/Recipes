@@ -12,6 +12,6 @@ Unpeeled Russet potatoes are boiled with salt, garlic and bay, then chilled comp
 - 1/4 tsp black pepper
 - flour, by eye
 
-## Preparation
+## Directions
 
 Mix all with a whisk. Whisk in flour until mixture is of a consistency just a little thicker than buttermilk.

@@ -31,7 +31,7 @@
 - 1 1/2 tbsps sesame oil
 - 1 tbsp finely chopped coriander leaves
 
-## Preparation
+## Directions
 
 ### Deep Fried Cauliflower
 

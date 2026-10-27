@@ -15,7 +15,7 @@ Fresh French baguette (white bread) -- not toasted
 - 1/4 cup grated Parmesan
 - 1/4 Gorgonzola cheese
 
-## Preparation
+## Directions
 
 1. Slice fresh French baguette 1/2 inch thick. Place the bread on a cook sheet.
 2. Combine tomatoes, garlic, onion, basil, pepper, and olive oil and spread evenly on a cookie sheet. Do not pile so high that it is going to fall off when eaten with the fingers -- be conservative.

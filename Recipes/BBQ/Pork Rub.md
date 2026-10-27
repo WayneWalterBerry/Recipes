@@ -13,6 +13,6 @@
 - 1/2 teaspoon celery seeds
 - 1/4 teaspoon ground ginger
 
-## Preparation
+## Directions
 
 Combine all ingredients in spice grinder and grind to combine. Store in an airtight container. When applying to pork, coat and massage into the meat.

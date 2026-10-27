@@ -29,7 +29,7 @@
 - 1/2 tsp. fenugreek seeds
 - 1 tsp. sesame seeds
 
-## Preparation
+## Directions
 
 1. Wash the lentils well. Put them in a Dutch oven, add the chicken stock and a cup of water. Boil till the lentils are soft. Add more water if required.
 2. While the lentils are boiling. Heat a griddle or heavy-bottomed flat pan on a medium flame and dry roast all the spices (except the turmeric and nutmeg) till they begin to release their aroma. Remove from the fire, cool and then grind to a fine powder in a dry coffee or spice grinder. Mix in the turmeric and nutmeg and blend well. Keep aside.

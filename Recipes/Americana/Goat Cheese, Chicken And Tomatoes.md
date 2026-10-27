@@ -13,7 +13,7 @@
 - 1 large basil sprig, plus more chopped basil for serving
 - 8 ounces goat cheese
 
-## Preparation
+## Directions
 
 1. Heat oven to 400 degrees. Pat chicken dry and season with salt and pepper.
 2. In a large oven-proof skillet, warm oil over medium-high heat. Add bacon and cook, stirring frequently, until browned. Use a slotted spoon to transfer bacon to a paper-towel-lined plate.

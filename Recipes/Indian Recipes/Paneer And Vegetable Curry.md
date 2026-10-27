@@ -26,7 +26,7 @@
 
 **Vegetables:** I use any 2-3 types of vegetables per dish anything that is in season including: green beans, carrots, broccoli, spinach, kale, and zucchini. In the winter I use frozen vegetables from Costco the combination pack contains broccoli, cauliflower, zucchini and carrots. You can also use frozen peas, and potatoes. For slow cooking vegetables like green beans, carrots, potatoes and kale I blanch them first in salt water (Step #1). For soft vegetables like zucchini I slice them thin and add at the last step.
 
-## Preparation
+## Directions
 
 1. Bring a large pot of water to a boil, add 1 teaspoon of salt. Add vegetables and cook till soft but not mushy.
 2. At the same time: roast poppy seeds and fennel (do not use oil) in a small skillet on the stove. When roasted and cooled, grind to a powder, and add cashew butter, combine.

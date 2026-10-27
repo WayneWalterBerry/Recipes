@@ -16,3 +16,7 @@ At Casa this is made with the house red sauce, which is made with chiles de arbo
 - 1/4 tsp ground cumin
 - 1/4 tsp sugar
 - 1/4 tsp salt
+
+## Directions
+
+1. Whisk all ingredients together until fully combined. Refrigerate until ready to use.

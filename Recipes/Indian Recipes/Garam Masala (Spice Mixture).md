@@ -1,6 +1,6 @@
 # Garam Masala (Spice Mixture)
 
-## Ingridents
+## Ingredients
 
 - 3 teaspoons ground cardamom seeds
 - 1/2 inch cinnamon stick, ground

@@ -16,7 +16,7 @@
 - 1 teaspoon Garam masala
 - 3 Green chillies tinely sliced.
 
-## Preparation
+## Directions
 
 1. Turn the oven on to 300 degrees to preheat.
 2. Cube leg lamb in 2 inch pieces, starting with 2 tablespoons of oil in the bottom of a dutch oven, in small batches on high heat on top of the stove, brown all the lamb cubes. Swap out the batch browning all the lamb and keep the dutch oven very hot so that they sizzle and brown.

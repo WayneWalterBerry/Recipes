@@ -36,6 +36,7 @@ A personal recipe collection, originally published at [Le Plat Principal](https:
 
 ### [Candy](Recipes/Candy)
 
+- [Candy Coated Peanuts](Recipes/Candy/Candy%20Coated%20Peanuts.md)
 - [Peanut Brittle](Recipes/Candy/Peanut%20Brittle.md)
 
 ### [Chinese](Recipes/Chinese)
@@ -45,7 +46,6 @@ A personal recipe collection, originally published at [Le Plat Principal](https:
 ### [Deserts](Recipes/Deserts)
 
 - [Banana Pudding](Recipes/Deserts/Banana%20Pudding.md)
-- [Candy Coated Peanuts](Recipes/Deserts/Candy%20Coated%20Peanuts.md)
 - [No-Bake Lime Cake](Recipes/Deserts/No-Bake%20Lime%20Cake.md)
 - [Pie Crust](Recipes/Deserts/Pie%20Crust.md)
 - [Pumpkin Crunch](Recipes/Deserts/Pumpkin%20Crunch.md)
@@ -114,4 +114,3 @@ A personal recipe collection, originally published at [Le Plat Principal](https:
 ### [Vietnamese](Recipes/Vietnamese)
 
 - [Quick Vietnamese Pork Noodle Soup - Pho](Recipes/Vietnamese/Quick%20Vietnamese%20Pork%20Noodle%20Soup%20-%20Pho.md)
-

@@ -11,7 +11,7 @@
 - 1 teaspoon vanilla extract
 - 1 teaspoon baking soda
 
-## Instructions
+## Directions
 
 1. Lightly grease a large baking sheet (13×18") with butter. Line it with parchment paper and lightly butter the paper. Make sure all of your ingredients are measured out and ready to go before you start.
 2. In a medium, heavy-bottomed saucepan with tall sides (at least 4-quarts), stir gently to combine the sugar, corn syrup, water, and salt. Scrape the sides of the pot with a rubber spatula to clean any sugar off the sides. Clip a candy thermometer on the side of the pot (making sure that it doesn't touch the bottom). Place the pan over medium heat.

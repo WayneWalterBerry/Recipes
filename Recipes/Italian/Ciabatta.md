@@ -8,7 +8,7 @@
 - 40ml olive oil
 - 400 ml tepid water
 
-## Instructions
+## Directions
 
 1. Lightly oil a 2-3 litre square plastic container. (It's important to use a square tub as it helps shape the dough).
 2. Put the flour, salt and yeast into the bowl of a mixer fitted with a dough hook (don't put the salt directly on top of the yeast). Add the olive oil and three-quarters of the water and begin mixing on a slow speed. As the dough starts to come together, slowly add the remaining water. Then mix for a further 5-8 minutes on a medium speed until the dough is smooth and stretchy.

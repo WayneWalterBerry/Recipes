@@ -26,7 +26,7 @@
 - 1 lb large raw shrimp, peeled and deveined
 - 1 tablespoon fresh lemon juice
 
-## Preparation
+## Directions
 
 1. In a small bowl, add the first 12 ingredients; mix well to form a smooth paste; set aside.
 2. Add oil to a big saucepan on medium heat.

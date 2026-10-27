@@ -12,7 +12,7 @@
 - 1/4 cup shredded coconut
 - Salt to taste.
 
-## Preparation
+## Directions
 
 1. Remove beet tops and peel the beetroot. Wash. Cube the beet root in 1/4 inch cubes.
 2. Heat oil in a pan add mustard seeds and split black lentils after it sputters.

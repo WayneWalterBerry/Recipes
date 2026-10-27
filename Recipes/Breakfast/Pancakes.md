@@ -17,7 +17,7 @@ There is no reason to eat pancakes from a box (and all those preservatives) when
 - 1/4 cup melted butter
 - vegetable oil
 
-## Preparation
+## Directions
 
 1. In a mixing bowl, combine the flour, sugar, salt, baking powder, and soda.
 2. In another bowl, whisk together buttermilk and milk, egg yolks. Slowly pour in melted butter whisking as you pour. Turn in the dry ingredients just until all ingredients are moistened -- it is important not over stir.
@@ -27,6 +27,6 @@ There is no reason to eat pancakes from a box (and all those preservatives) when
 
 Serves: 4
 
-## Note
+## Notes
 
 These pancakes are fluffy and light, almost like eating bread. However, adding anything to them like bananas, chocolate chips, or blue berries will reduce their fluffiness.

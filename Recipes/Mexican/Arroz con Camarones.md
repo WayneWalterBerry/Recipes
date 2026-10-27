@@ -33,5 +33,3 @@ This rice and shrimp dish has a lot of flavor, because the shrimp shells are ble
 6. Add fresh parsley and serve.
 
 Serves: 4
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/mexican/arroz-con-camarones)

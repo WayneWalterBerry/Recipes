@@ -26,5 +26,3 @@
 6. Cover and place the dutch oven into the 300 degree oven for 1 1/2 hours stirring occasionally.
 7. Remove lid and stir in garam masala. Cook in oven another 1 1/2 hours. When done, lamb should be tender and falling apart, liquid should be reduced and covering the lamb with a little bit of gravy.
 8. Garnish with slices of raw green chillies and serve over rice.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/syun-methi-lamb-with-fenugreek)

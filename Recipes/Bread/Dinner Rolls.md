@@ -17,5 +17,3 @@
 2. Using a wooden spoon, stir in 6 cups flour, 1 cup at a time, until you have a soft, shaggy dough (if necessary, add up to 1/2 cup more flour). Turn dough out onto a floured work surface; knead until smooth and elastic, 5 to 10 minutes. Butter the inside of a large bowl; place dough in bowl, turning to coat. Cover bowl with plastic wrap; let stand in a warm spot until dough has doubled in size, about 1 1/4 hours.
 3. Butter two 13-by-9-inch baking pans. Divide dough in half. Roll each half into a 15-inch rope; cut each rope into 15 1-inch pieces. Press each piece into a disk, then shape into a ball. Arrange dough balls in prepared pans. (To make ahead: Wrap pans well, and freeze, up to 2 months.) Cover pans loosely with plastic; let stand in a warm spot until rolls have doubled in size, about 1 1/4 hours (2 hours more if frozen).
 4. Preheat oven to 375 degrees, with racks in upper and lower thirds. In a small bowl, beat remaining egg until blended; brush onto rolls. Bake until golden brown, about 20 minutes. Let rolls cool 15 minutes before serving.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/bread/dinner-rolls)

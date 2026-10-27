@@ -22,5 +22,3 @@ Serves: 4
 ## Note
 
 There are no eggs, flour, thicker (like MSG), or oil in this recipe – making good hash brown is about technique.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/breakfast/hash-browns)

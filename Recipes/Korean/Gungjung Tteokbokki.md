@@ -27,5 +27,3 @@
 6. Add the rice cakes, their sauce and 1/2 cup water and bring to a simmer. Reduce heat to low and cook, stirring frequently, until sauce thickens and rice cakes are tender and nicely glazed, about 8 minutes.
 7. Stir in mung bean sprouts and remaining scallions and sesame oil. Season with salt and pepper.
 8. Divide Tteokbokki among bowls and garnish with sesame seeds. Serve warm.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/gungjung-tteokbokki)

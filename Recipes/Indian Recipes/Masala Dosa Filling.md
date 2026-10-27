@@ -22,5 +22,3 @@
 1. Boil Potatoes until their skins start falling off, turn off heat and let cool to touch. Remove from the water, peel off remaining skin and cube.
 2. Put ghee in a wide skillet over medium heat. When oil is wavy, add mustard seeds and cumin seeds. Wait for seeds to pop, about 1 minute, then add red peppers and onion. Cook, stirring until onions have softened, about 5 minutes. Season lightly with salt. Add turmeric, asafetida, ginger, curry leaves, garlic and green chile. Stir to coat and let sizzle for 1 minute.
 3. Add potatoes and 1/2 cup water. Cook, stirring well to combine, until liquid has evaporated, about 5 minutes. Mash potatoes a bit with the back of a wooden spoon. Season well with salt, add cilantro, then set aside at room temperature. (Potato filling may be prepared up to a day in advance.)
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/masala-dosa-filling)

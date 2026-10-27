@@ -14,5 +14,3 @@
 3. Add 2 Tablespoons of drippings to Pan, coat pan and sides.
 4. Pour Batter in Center.
 5. Cook 30 minutes at 400 degrees.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/deserts/yorkshire-pudding)

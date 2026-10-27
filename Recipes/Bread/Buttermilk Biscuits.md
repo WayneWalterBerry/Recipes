@@ -19,5 +19,3 @@
 6. Using the bench scraper or a sharp knife, cut straight down into the square to create a 3-by-3 grid of 9 squares, then place them on your sheet pan, upside down if you'd like taller biscuits. Bake for 25 to 35 minutes, rotating the pan halfway through, until risen, golden brown on top, and slightly pale on the sides. Don't worry if a couple of the biscuits tip over or if melted butter pools underneath. Brush the tops with melted butter and sprinkle with flaky sea salt, if using.
 
 See also: [How To Make Buttermilk Biscuits with Briana Holt - YouTube](https://www.youtube.com/watch?v=4uzxRFtjNcg)
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/bread/buttermilk-biscuits)

@@ -25,5 +25,3 @@
 5. Sprinkle chopped pecans evenly over the cake mix, then drizzle with melted butter.
 6. Bake for 55 - 60 minutes, top will be browned.
 7. Top with whipped topping when ready to serve.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/deserts/pumpkin-crunch)

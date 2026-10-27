@@ -28,5 +28,3 @@
 4. Remove lid once the cabbage is three fourth cooked. Continue to cook over low flame. Add red chili powder, coriander powder, jaggery or brown sugar and salt to taste and stir fry for a few more minutes till the flavors blend and the cabbage retains a bit of crunch.
 5. Turn off heat, add lemon juice and mix.
 6. Plate and sprinkle fresh coriander leaves on top for garnish.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/aloo-patta-gobhi-sabzi-potato-cabbage-stir-fry)

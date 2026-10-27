@@ -22,5 +22,3 @@
 5. Add whole tomatoes gently squash them with a potato masher. Cook until sauce thickens somewhat, about 10 minutes.
 6. Return chicken to skillet. Slice medallions of goat cheese and add between chicken. Transfer skillet to oven and cook, uncovered, until chicken is no longer pink, about 30 minutes.
 7. Garnish chopped basil before serving.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/goat-cheese-chicken-and-tomatoes)

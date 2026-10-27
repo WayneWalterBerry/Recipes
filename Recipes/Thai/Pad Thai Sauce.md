@@ -9,5 +9,3 @@ The problem is most Thai ingredients are not standardized in the way that a West
 1. Source your ingredients. Go your Asian market purchase the ingredients and write down the brands – you are going to want to purchase the same product – with the same intensities next time.
 2. Mix the ingredients together – roughly ½ cup each of Tamarind, Fish Sauce, and Palm Sugar. If you substitute white and/or brown sugar for the Palm Sugar, you should use only about 1/3 cup. Melt all these together in a small pot over a low flame. The only reason you are using the heating is to melt the sugar – you are not cooking the sauce.
 3. Taste and adjust the flavor balance until it suits you. Then add the chilli powder, begin with a teaspoon or two, depending on your taste, and keep adding until it tastes the way you like it.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/pad-thai-sauce)

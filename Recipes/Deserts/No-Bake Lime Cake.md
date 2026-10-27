@@ -16,5 +16,3 @@
 3. Transfer about 1 cup of the lime cream to the prepared pan and use a small spatula to spread it across the bottom and up the sides of the pan. Arrange an even layer of biscuits over the cream, breaking the cookies as needed to form an even layer. Top biscuits with about 1 cup of the lime cream, spread it into an even layer, and top with another layer of biscuits. Continue layering in the same manner, finishing with the cream. There should be 5 cream layers and 4 cookie layers total.
 4. Cover the top with plastic wrap and refrigerate until completely chilled and set, at least 12 hours and up to 24 hours.
 5. To serve, remove the top layer of plastic, cover the loaf pan with a platter, and flip over. The icebox cake should easily release. If it doesn't, hold down the excess plastic wrap from the sides with one hand while lifting the loaf pan with the other to help break the seal. Peel off the plastic wrap and cut into ¾-inch-thick slices. Serve immediately.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/deserts/no-bake-lime-cake)

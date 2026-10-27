@@ -37,5 +37,3 @@
 4. Heat the cooking oil in a pan on a medium flame and when hot, add the fresh coriander, fenugreek and mint leaves to it. Fry till soft. Remove from the fire and cool. Grind into a smooth paste in a food processor.
 5. To the lentils in the Dutch oven add ginger, garlic and tamarind pastes and bring to a boil, stirring frequently to prevent sticking. The consistency should always be like a medium-thick soup. Add a cup of water, the spice powder and coriander-fenugreek-mint paste you made earlier, salt if required and the chicken pieces. Mix well.
 6. Simmer and cook till chicken is done. Add more water to maintain consistency.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/dhansak-chicken-with-lentils)

@@ -25,5 +25,3 @@ Servings: 6
 8. Use as a sandwich spread or as a dip.
 
 Note: quantities of lemon juice, salt and garlic can be adjusted to preference.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/hummas)

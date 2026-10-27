@@ -29,5 +29,3 @@ Making homemade tortillas is fun and there's very little kitchen equipment neede
 13. Flip it when it starts to have a few nice brown speckles.
 14. Cover tortillas with a towel. You'll do this with all the tortillas to keep them warm.
 15. Enjoy your homemade tortillas with some butter, fresh salsa or stuff them with your favorite ingredients!
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/mexican/flour-tortillas)

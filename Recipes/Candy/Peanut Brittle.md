@@ -20,5 +20,3 @@
 5. Cook for another 12 to 15 minutes, or until the mixture reaches 280°F, then stir in the peanuts. Cook, stirring slowly but consistently, until the temperature reaches 305°F.
 6. Remove the pan from heat and immediately add the vanilla and baking soda. Stir well to combine. (The mixture will bubble up quite a bit, so don't be alarmed.) Immediately pour the mixture onto the prepared baking sheet and quickly spread it out using a spatula. The brittle should completely cover the sheet pan and be thinner than the peanuts embedded in it.
 7. Allow the brittle to cool completely, about 45 minutes, before breaking into pieces.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/candy/peanut-brittle)

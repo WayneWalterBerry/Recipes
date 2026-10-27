@@ -31,5 +31,3 @@
 7. Add the chickpeas with the water from the can and close with a lid. Cook down the chickpeas until they get soft, about 10 minutes.
 8. Add half the chopped spinach on top. Let it wilt slightly. Add the rest of the spinach. Continue cooking until the spinach wilts completely.
 9. You can add more water and mash few of the chickpeas to create a thick consistency.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/channa-palak-chickpeas-with-spinach)

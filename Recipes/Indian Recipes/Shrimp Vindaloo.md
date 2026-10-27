@@ -37,5 +37,3 @@
 7. Add in the shrimp, stir to coat.
 8. Increase heat to medium-and cook, stirring frequently, for 3 minutes or until the shrimp are pink.
 9. Add in lemon juice; stir and serve immediately over hot cooked rice.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/shrimp-vindaloo)

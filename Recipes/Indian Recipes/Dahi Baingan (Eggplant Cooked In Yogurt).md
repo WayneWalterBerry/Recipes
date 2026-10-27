@@ -39,5 +39,3 @@
 11. Add garam masala pwd and dried fenugreek leaves and combine. Turn off heat.
 
 Serve with rice or rotis.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/dahi-baingan-eggplant-cooked-in-yogurt)

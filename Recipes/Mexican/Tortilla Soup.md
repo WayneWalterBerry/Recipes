@@ -14,5 +14,3 @@
 ## Preparation
 
 In a 2 quart saucepan combine undrained tomatoes, corm, water, and seasoning mix. Cook over mediu, head till boiling, stirring occasionally. Spooon into 4 soup bowls. Sprinkle tostada shells and cheese over hot soup. Let stand about 5 minutes or till cheese melts. Makes 4 servings. Top with glob of sourcream.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/mexican/tortilla-soup)

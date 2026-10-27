@@ -27,5 +27,3 @@ The secret to this dish is to keep the ingredients dry while preparing the dish,
 3. Put prawns in a shallow fry pan and on low cook them until they are just halfway done, about 5 minutes This should cook out the majority of the water in them. Drain any excess water.
 4. Heat oil in a pan (wok), add the finely minced garlic and saute for half a minute. Add sliced onions, fennel greek leaves and curry leaves and saute till the onions turn a light caramlized brown, approx 7-8 minutes.
 5. Add the cooked prawns, fennel seed powder, coriander powder and garam masala powder and stir fry for 3 minutes. Add the grated coconut and saute for 3 minutes.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/coconut-shrimp)

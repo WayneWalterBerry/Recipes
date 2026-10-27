@@ -32,5 +32,3 @@ Dal makhani is delicacy from punjab filled with rich proteins and fiber.
 6. Correct seasoning, and simmer at very slow flame for 15-20 minutes.
 7. Add fresh cream and let it simmer for 5 minutes and turn off the heat.
 8. Garnish with coriander leaves before serving.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/dal-makhani-black-lentils-and-beans)

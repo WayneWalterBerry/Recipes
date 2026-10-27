@@ -40,5 +40,3 @@
 8. Finally add Garam masala powder, mix well.
 9. Add thick coconut milk and cook on medium flame for 3-4 minutes.
 10. Turn off heat and garnish with fresh coriander leaves.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/chicken-curry-with-coconut)

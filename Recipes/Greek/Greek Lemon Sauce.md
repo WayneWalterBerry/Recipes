@@ -16,5 +16,3 @@
 5. Pour egg mixture back into saucepan; heat over low heat, stirring constantly, until mixture coats back of spoon (do not boil).
 6. Season pepper.
 7. Serve immediately.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/greek-lemon-sauce)

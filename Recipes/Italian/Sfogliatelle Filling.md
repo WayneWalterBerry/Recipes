@@ -21,5 +21,3 @@ Sfogliatelle is a Italian pastry with a creamy semi-sweet filling. Sfogliatelle 
 5. Press the ricotta cheese through a sieve to remove any lumps.
 6. Add the ricotta, egg, sugar, candied fruit, and cinnamon to the semolina mixture.
 7. Beat well to blend and set aside.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/sfogliatelle-filling)

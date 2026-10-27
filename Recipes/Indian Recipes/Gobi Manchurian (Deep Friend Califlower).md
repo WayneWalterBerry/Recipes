@@ -54,5 +54,3 @@
 ### Combine
 
 1. Plate the deep fried cauliflower, drizzy sauce on top of cauliflower.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/gobi-manchurian-deep-friend-califlower)

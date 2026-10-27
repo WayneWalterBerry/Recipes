@@ -27,5 +27,3 @@
 7. Bring 4 quarts water to a boil in a large pot. Boil the bagels, two at a time about 1 minute per side. Remove the bagels with a slotted spoon and place them on the parchment-lined baking sheet.
 8. Sprinkle with coarse salt or poppy seeds, if desired.
 9. Bake in the preheated oven until the bagels begin to brown, 15 to 20 minutes.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/bread/bagels)

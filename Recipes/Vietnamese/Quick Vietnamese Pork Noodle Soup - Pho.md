@@ -31,5 +31,3 @@ This is my reciepe for a fast (20 minutes of preperation) using beef base paste.
 3. Add the star anise, cloves, cinnamon and peppercorn into the stock. Keep simmering the stock and add the noodles and boil for for about 5 minutes, until just cooked.
 4. Add the fish sauce, salt and sugar into the stock. Adjust the taste to your liking by varying the amounts of these ingredients. Bear in mind that the noodles will reduce the saltiness of the soup, notice that we didn't add salt -- there is enough in the beef base.
 5. In a bowl, pour the boiling soup into the bowl with some noodles, add slices of BBQ pork on top. On the side serve a few basil and mint leves, sliced Thai cillies, and the bean sprouts.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/quick-vietnamese-pork-noodle-soup-pho)

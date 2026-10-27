@@ -20,5 +20,3 @@
 2. Make pie dough or purchase a pie shell, line bottom of 9 inch pie pan with pie dough.
 3. Pour mixture into uncooked pie shell and make at 425F for 15 minutes. After 15 minutes reduce temperature to 350F. Bake 45-50 minutes, or until a knife inserted near the center comes out clean.
 4. Cool on a wire rack for 2 hours
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/deserts/pumpkin-pie)

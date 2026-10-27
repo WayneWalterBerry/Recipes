@@ -23,5 +23,3 @@
 3. When the rice is cooked to your liking, drain the rice into a colander and rinse with cold water to stop if from cooking. Remove the cloves, cardamom and cinnamon and discard. Set the rice aside to drain.
 4. In a pan large enough to hold the rice, heat the oil over medium-high heat. Add the mustard and cumin seeds and the chile flakes. Cook until the mustard seeds start popping, then add the onion. Sauté until the onion begins to brown, about 5-7 minutes.
 5. Add the garlic and sauté another 2-3 minutes. Add the rice and mix well. Sprinkle the turmeric over the rice and mix well. Cook for another 3-4 minutes, stirring often.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/indian-rice)

@@ -20,5 +20,3 @@
 4. Add dry ingredients to the suspension and combine until clumps are gone, don't over mix.
 5. Gently Stir In Honey.
 6. Wait 5 Minutes for baking powder to activate.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/breakfast/waffles)

@@ -53,5 +53,3 @@
 5. Add only the chicken from the chicken-spice mix and fry till sealed (chicken will turn opaque and the flesh will go from pink to whitish in color).
 6. Now add the chopped tomato as paste, chicken stock, fenugreek leaves and remaining part of the yogurt-spice mix, and butter to the chicken.
 7. Cook till the chicken is tender and the gravy is reduced to half its original volume.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/butter-chicken)

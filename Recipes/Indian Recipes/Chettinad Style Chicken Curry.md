@@ -44,5 +44,3 @@
 9. Turn off heat and garnish with fresh coriander leaves.
 
 Serve hot with white steamed rice, biryani, chapatis or dosas.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/chettinad-style-chicken-curry)

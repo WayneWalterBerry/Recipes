@@ -15,5 +15,3 @@
 5. When the oven is up to temperature, put the chicken in the oven. I leave it alone—I don't baste it, I don't add butter; you can if you wish, but I feel this creates steam, which I don't want.
 6. Roast it until it's done, 50 to 60 minutes (4 lbs) to 70 minutes for (5 lbs). Temp it, the deepest meat should be 160 degrees.
 7. Let it rest for 15 minutes on a cutting board (it should come up 5-10 degrees). If you are too impatient to let it rest, then cook it to 165 degrees before pulling it.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/roasted-chicken)

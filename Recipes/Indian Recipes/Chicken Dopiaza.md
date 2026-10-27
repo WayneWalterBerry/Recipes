@@ -30,5 +30,3 @@
 5. Add the water and tomatoes and simmer 5 minutes until sauce starts to thicken.
 6. Add the chicken pieces and continue to cook for 12-15 minutes.
 7. Add the reserved small halved onions and then cover and cook for a further 8-10 minutes until chicken has cooked through.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/chicken-dopiaza)

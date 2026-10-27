@@ -26,5 +26,3 @@
 6. Pour the brown-sugar mixture into the cake pan, then spoon in the rhubarb and its juices. Spoon in the batter so it covers all of the rhubarb. Smooth out the top.
 7. Bake for 1 hour and 15 minutes, or until the top of the cake is firm to touch and a toothpick stuck in the middle comes out without any large, moist crumbs.
 8. Place the pan on a wire rack, and cool for 15 minutes. Run a knife around the cake, place a plate on top of the pan and turn it upside-down. Release the cake from the pan while still warm or else it will stick.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/deserts/rhubard-upside-down-cake)

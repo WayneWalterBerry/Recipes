@@ -23,5 +23,3 @@ Fresh French baguette (white bread) -- not toasted
 4. Bake in the oven at 400 degrees until the cheese is melted about 10 minutes.
 
 Serves: 4
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/italian/bruschetta-alla-luciano)

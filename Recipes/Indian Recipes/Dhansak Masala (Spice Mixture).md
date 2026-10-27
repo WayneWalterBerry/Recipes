@@ -9,5 +9,3 @@
 ## Directions
 
 Combine and grind in a spice grinder.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/dhansak-masala-spice-mixture)

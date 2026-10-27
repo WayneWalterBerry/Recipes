@@ -16,5 +16,3 @@
 ## Preparation
 
 Combine all ingredients in spice grinder and grind to combine. Store in an airtight container. When applying to pork, coat and massage into the meat.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/bbq/pork-rub)

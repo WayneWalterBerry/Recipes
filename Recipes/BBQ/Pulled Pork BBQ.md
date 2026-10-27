@@ -46,5 +46,3 @@ If you don't want pulled pork you can cook it for slightly less time in the alum
 The pulled meat can be eaten alone or put on a plain white bun and a finishing sauce applied to the meat, which is the traditional pulled pork barbecue method. There are many different finishing sauces and you should try as many of them that you can.
 
 Properly prepared pulled pork barbecue is "to die for" and will win you many friends at a cook-out or reunion.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/bbq/pulled-pork-bbq)

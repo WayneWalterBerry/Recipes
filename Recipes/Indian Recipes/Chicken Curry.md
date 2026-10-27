@@ -28,5 +28,3 @@
 8. Cover with a lid and cook on low for 20 minutes.
 9. Add garam masala powder, almond butter and curry leaves. Stir in almond butter until the warm liquid of the curry melts it down and it is well incorporated.
 10. Cook without lid till you achieve the desired curry consistency.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/chicken-curry)

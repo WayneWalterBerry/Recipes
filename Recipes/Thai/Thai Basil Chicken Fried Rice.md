@@ -32,5 +32,3 @@
 4. Stir in the chicken, bell pepper, onion and oyster sauce mixture; cook until the chicken is no longer pink.
 5. Raise heat to high and stir in the chilled rice; stir quickly until the sauce is blended with the rice. Use the back of a spoon to break up any rice sticking together.
 6. Remove from heat and mix in the basil leaves. Garnish with sliced cucumber and cilantro as desired.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/thai-basil-chicken-fried-rice)

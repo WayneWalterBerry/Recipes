@@ -25,5 +25,3 @@ Shamiana Restaurant Style, Kirkland, WA
 6. Add heavy whipping cream to onions and chutney; continue cooking on high, stirring occasionally for another 10 minutes, cooking off the cream and thickening the curry make sure it is extra thick since the chicken will delude it.
 7. Add chicken (without the water) to curry and cook until chicken is cooked completely, about 10 minutes. Do not overcook.
 8. Serve on top of rice, garish with diced green onions.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/major-grey-chicken-curry)

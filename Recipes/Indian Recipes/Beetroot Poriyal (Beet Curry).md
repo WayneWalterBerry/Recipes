@@ -25,5 +25,3 @@
 9. Garnish it with coriander leaves.
 
 Serve hot with chapathi or rice.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/beetroot-poriyal-beet-curry)

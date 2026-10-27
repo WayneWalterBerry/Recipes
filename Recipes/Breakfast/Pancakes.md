@@ -30,5 +30,3 @@ Serves: 4
 ## Note
 
 These pancakes are fluffy and light, almost like eating bread. However, adding anything to them like bananas, chocolate chips, or blue berries will reduce their fluffiness.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/breakfast/pancakes)

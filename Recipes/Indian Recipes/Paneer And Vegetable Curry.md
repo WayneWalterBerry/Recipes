@@ -42,5 +42,3 @@
 12. Garnish with coriander leaves and drizzle with a little cream.
 
 Serve hot with chapathi or paratha.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/paneer-and-vegetable-curry)

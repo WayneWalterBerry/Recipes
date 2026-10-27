@@ -15,5 +15,3 @@ In a 3-quart pot (make sure you can find the lid, you will need it later), cook 
 ## Notes
 
 100% grated parmesan cheese (the kind you can shake in the green can) is a great addition.
-
-Source: [Le Plat Principal](https://sites.google.com/site/leplatprincipal/recipes/bacon-popcorn)

@@ -1,5 +1,7 @@
 # Aloo Patta Gobhi Sabzi (Potato Cabbage Stir Fry)
 
+![Aloo Patta Gobhi Sabzi (Potato Cabbage Stir Fry)](<./Aloo Patta Gobhi Sabzi (Potato Cabbage Stir Fry).jpg>)
+
 ## Ingredients
 
 - 1 1/2 tbsps oil

@@ -1,5 +1,7 @@
 # Pancakes
 
+![Pancakes](<./Pancakes.jpg>)
+
 There is no reason to eat pancakes from a box (and all those preservatives) when you have almost all the ingredients in the refrigerator. Beaten egg whites make these pancakes fluffy.
 
 ## Ingredients

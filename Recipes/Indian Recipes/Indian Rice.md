@@ -16,7 +16,7 @@
 - 3 chopped garlic cloves
 - 1/4 teaspoon turmeric
 
-## Preperation
+## Preparation
 
 1. Place rice in a sieve and run cool water through it to rinse it until the water runs clear. Soak the rice in cool water for 30 minutes. Drain.
 2. Bring 8 cups of water and the salt to a boil in a large pot. Add the rice and stir. Add the cloves, cardamom and cinnamon and simmer for 10 minutes. Taste the rice, and test if it is done to your taste; rice can take more or less time to cook depending on how old it is. If still too firm, cook a few minutes longer.

@@ -1,5 +1,7 @@
 # Southern Raspberry Red Velvet Cake
 
+![Southern Raspberry Red Velvet Cake](<./Southern Raspberry Red Velvet Cake.jpg>)
+
 ## Ingredients
 
 - Vegetable oil for the pans

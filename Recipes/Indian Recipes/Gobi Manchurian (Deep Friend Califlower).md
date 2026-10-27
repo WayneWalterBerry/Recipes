@@ -1,5 +1,7 @@
 # Gobi Manchurian (Deep Friend Califlower)
 
+![Gobi Manchurian (Deep Friend Califlower)](<./Gobi Manchurian (Deep Friend Califlower).jpg>)
+
 ## Ingredients
 
 ### Deep Fried Cauliflower
@@ -29,7 +31,7 @@
 - 1 1/2 tbsps sesame oil
 - 1 tbsp finely chopped coriander leaves
 
-## Preperation
+## Preparation
 
 ### Deep Fried Cauliflower
 

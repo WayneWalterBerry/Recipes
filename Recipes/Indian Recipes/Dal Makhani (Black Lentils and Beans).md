@@ -10,16 +10,16 @@ Dal makhani is delicacy from punjab filled with rich proteins and fiber.
 - 2 teaspoons coarsely ground fennel seeds
 - 1 teaspoon Red chilli powder
 - 1 teaspoon turmeric powder
-- 3-4 tbs. butter
-- 1 tsp. cumin seeds
-- 1/4 tsp Asafoetida (Hing)
-- 1 tbsp minced ginger
-- 1 tbsp minced garlic
+- 3-4 tablespoons butter
+- 1 teaspoon cumin seeds
+- 1/4 teaspoon Asafoetida (Hing)
+- 1 tablespoon minced ginger
+- 1 tablespoon minced garlic
 - 1 medium onion finely chopped
 - 2-3 medium tomatoes, chopped
-- 1/2 tsp. Garam Masala
+- 1/2 teaspoon Garam Masala
 - 1/2 cup fresh cream.
-- 2 tbs. chopped coriander leaves (optional)
+- 2 tablespoons chopped coriander leaves (optional)
 - Salt to taste
 
 ## Directions

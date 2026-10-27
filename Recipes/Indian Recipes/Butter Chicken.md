@@ -27,7 +27,7 @@
 
 ### Step 4
 
-- 3 tbsps. vegetable/canola/sunflower cooking oil
+- 3 tablespoons vegetable/canola/sunflower cooking oil
 - 2 onions chopped
 - 2 teaspoons garlic paste
 - 1 teaspoon ginger paste
@@ -37,7 +37,7 @@
 - 400g/ 14 oz. of chopped tomatoes, ground into a smooth paste in a food processor
 - 1 tablespoon chicken paste
 - 2 teaspoons kasuri methi (dried fenugreek leaves)
-- 3 tbsps. butter
+- 3 tablespoons butter
 
 ### Additional
 

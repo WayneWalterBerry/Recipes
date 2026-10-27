@@ -8,7 +8,7 @@
 - 2 cups all-purpose sifted flour
 - 1/2 cup freeze dried raspberries, powdered in a spice blender and sifted (2 1.5 Oz Packages From Trader Joes)
 - 1 1/2 cups sugar
-- 1 1/2 teaspoon baking soda
+- 1 1/2 teaspoons baking soda
 - 1 teaspoon fine salt
 - 1 tablespoon cocoa powder
 - 1/2 cups shortening

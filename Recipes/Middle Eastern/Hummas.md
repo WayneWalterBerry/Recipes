@@ -7,8 +7,8 @@ Servings: 6
 - 2 1⁄2 cups water
 - 3⁄4 cup chickpea flour (Garbanzo)
 - 2-3 garlic cloves, minced
-- 1⁄4 teaspoon cumin, ground
-- 1⁄4 teaspoon salt
+- 1⁄4 teaspoons cumin, ground
+- 1⁄4 teaspoons salt
 - 1 lemon, juice of
 - 1⁄4 cup tahini
 - 2 tablespoons olive oil

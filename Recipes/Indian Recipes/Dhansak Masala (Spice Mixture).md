@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-- 1 1/2 teaspons [Garam Masala](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/garam-masala-spice-mixture)
+- 1 1/2 teaspoons [Garam Masala](https://sites.google.com/site/leplatprincipal/recipes/indian-recipes/garam-masala-spice-mixture)
 - 1/2 teaspoon Star Anise Powder
 - 1/4 teaspoon Nutmeg
 

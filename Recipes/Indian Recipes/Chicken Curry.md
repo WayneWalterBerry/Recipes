@@ -5,9 +5,9 @@
 - Chicken - Whole 4lb chicken (cut up the back, wings, breasts, legs, thighs) or 6 pack of legs, or 6 pack of thighs.
 - Red Onions - 2 medium sized, finely chopped
 - 1 tablespoon - Ginger garlic paste
-- 1/8 tsp - Red chili powder
+- 1/8 teaspoon - Red chili powder
 - 1 teaspoon - Turmeric powder
-- 1 tablespoons - Coriander powder
+- 1 tablespoon - Coriander powder
 - 1/2 teaspoon - Roasted cumin powder
 - 1/2 teaspoon - Dried fenugreek leaves
 - 1 14oz - Can of Diced Tomators

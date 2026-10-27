@@ -8,7 +8,7 @@
 - 2 cloves
 - 2 cardamom pods
 - One 2-inch piece of cinnamon
-- 3 Tbsp vegetable oil (or ghee if you have it)
+- 3 Tablespoons vegetable oil (or ghee if you have it)
 - 1/2 teaspoon dark mustard seeds
 - 1/2 teaspoon cumin seeds
 - 1/4 teaspoon chile flakes

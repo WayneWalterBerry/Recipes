@@ -2,27 +2,27 @@
 
 ## Ingredients
 
-- 1/2 tsp cumin seeds
-- 1/2 tsp fennel seeds
+- 1/2 teaspoon cumin seeds
+- 1/2 teaspoon fennel seeds
 - 1 stick cinnamon
 - 2 bay leaf
 - pinch of cardamom powder
 - 1 red onion.chopped (finely chopped)
-- 1/2 tsp ginger-garlic paste
+- 1/2 teaspoon ginger-garlic paste
 - 3 medium tomatoes, chopped (1 can of diced tomatoes)
 - 1-2 green chillies, thinly sliced (or as per taste)
-- 1 tsp garam masala
-- 1 tsp mango powder
-- 1/2 tsp turmeric powder
-- 1/2 tsp cumin powder
-- 1/2 tsp coriander powder
+- 1 teaspoon garam masala
+- 1 teaspoon mango powder
+- 1/2 teaspoon turmeric powder
+- 1/2 teaspoon cumin powder
+- 1/2 teaspoon coriander powder
 - salt to taste
 - 1-2 bunches of spinach, coarsely chopped (you can use as much or as little, as per taste)
 - 1 can of chickpeas (gabonzo beans)
 
 ## Directions
 
-1. In a pan, heat 1 tsp of oil. Add cumin seeds, fennel seeds, cinnamon stick, cardamom powder, bay leaf in that order.
+1. In a pan, heat 1 teaspoon of oil. Add cumin seeds, fennel seeds, cinnamon stick, cardamom powder, bay leaf in that order.
 2. The second the aroma starts wafting, add the onion and then ginger garlic paste. Saute until onion get soft about 4 minutes.
 3. Add the green chillies, garam masala, mango powder, turmeric powder, cumin powder, coriander powder, and salt, mix in with the onions until the onion is coated. Cook for 30 seconds.
 4. Add chopped tomatoes, incorporate with the onions and spices, Cook for 2 minutes getting the tomatoes hot.

@@ -15,7 +15,7 @@
 - 1/4 teaspoon ground ginger
 - 1/8 teaspoon ground cloves
 - 1/8 teaspoon ground cardamom
-- 1 tablespoons red wine vinegar
+- 1 tablespoon red wine vinegar
 
 ### Dish
 

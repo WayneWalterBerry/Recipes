@@ -4,18 +4,18 @@
 
 ### Marinade
 
-- 1 tbs soy sauce
-- 1 tbs shashing (chinese rice wine)
-- 2 tbsps seame oil
+- 1 tablespoon soy sauce
+- 1 tablespoon shashing (chinese rice wine)
+- 2 tablespoons sesame oil
 
 ### Stir Fry
 
 - 1/2 lb lean beef very thinly sliced
-- 1 tbsp chinese red vinegar
-- 1 bsps seame oil
+- 1 tablespoon chinese red vinegar
+- 1 tablespoon sesame oil
 - 2 garlic cloves minced
 - 2 cups of scallions (spring onions) cut in 10 cm length
-- 1 tbs soy suace
+- 1 tablespoon soy suace
 
 ## Directions
 

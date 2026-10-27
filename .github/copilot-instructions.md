@@ -5,3 +5,4 @@
 - Each recipe is a single Markdown file under `Recipes/<Category>/`. Pick an existing category folder if the recipe fits one; otherwise create a new category folder.
 - Start new recipes from `RECIPE_TEMPLATE.md` at the repo root so headers and wording stay consistent (`## Ingredients`, `## Directions`, optional `## Notes`). Don't invent alternate header names (e.g. "Preparation", "Instructions", "Method") for these sections.
 - When adding, removing, renaming, or moving a recipe (or a category), update the navigation links in `README.md` at the repo root so it stays in sync with the `Recipes/` folder structure.
+- Spell out measurement units in full instead of abbreviating them (e.g. "1 teaspoon", "2 tablespoons") — never "tsp", "tbsp", "tbs", "Tb", etc. This is more accessible for readers with dyslexia. Use the singular form ("teaspoon"/"tablespoon") when the quantity is 1 or a fraction less than 1, and the plural form when it's greater than 1.

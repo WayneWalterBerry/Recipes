@@ -10,7 +10,7 @@
 - 1/4 teaspoon Turmeric powder
 - 1 tablespoon Coriander powder
 - 1/4 teaspoon Cumin powder
-- 2 tablespoon ginger/garlic paste
+- 2 tablespoons ginger/garlic paste
 - 1 tablespoon green chili paste
 
 ### Dish
@@ -18,9 +18,9 @@
 - Red Onion: 2 (large, finely chopped)
 - 1 Start Anize
 - 1" of cinnamon stick.
-- 2 tablespoon ginger/garlic paste
+- 2 tablespoons ginger/garlic paste
 - 1 tablespoon green chili paste
-- 1 1/2 teaspoon cayenne pepper powder.
+- 1 1/2 teaspoons cayenne pepper powder.
 - Poppy seeds: 1 tablespoon (soak in little milk and make paste)
 - salt to taste
 - 1 teaspoon Garam masala powder

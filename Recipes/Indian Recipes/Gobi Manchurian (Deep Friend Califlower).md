@@ -7,10 +7,10 @@
 ### Deep Fried Cauliflower
 
 - 1 medium sized cauliflower, cut into florets, placed in salted hot water for 10-12 mts, drained
-- 2 tbsps maida/all-purpose flour
-- 2 tbsps cornflour
-- 1/2 tbsp rice flour (optional)
-- 1 tbsp ginger-garlic-green chilli paste
+- 2 tablespoons maida/all-purpose flour
+- 2 tablespoons cornflour
+- 1/2 tablespoon rice flour (optional)
+- 1 tablespoon ginger-garlic-green chilli paste
 - approx a little less than 1/2 cup warm water
 - salt to taste
 
@@ -18,18 +18,18 @@
 
 - 1/4 cup spring onions, finely chopped,
 - 1/2 red bell pepper, finely sliced
-- 1 1/2 tbsps finely minced garlic
-- 1/2 tbsp finely sliced ginger
+- 1 1/2 tablespoons finely minced garlic
+- 1/2 tablespoon finely sliced ginger
 - 2 finely chopped green chillis
-- 1 tsp red chilli pwd (preferably Kashmiri)
-- 2 tsps soya sauce
-- 1 tbsp chilli sauce
-- 2 tsps vinegar
-- 3 tbsps tomato sauce
-- 1/2 tsp brown sugar (optional)
+- 1 teaspoon red chilli pwd (preferably Kashmiri)
+- 2 teaspoons soya sauce
+- 1 tablespoon chilli sauce
+- 2 teaspoons vinegar
+- 3 tablespoons tomato sauce
+- 1/2 teaspoon brown sugar (optional)
 - salt as required
-- 1 1/2 tbsps sesame oil
-- 1 tbsp finely chopped coriander leaves
+- 1 1/2 tablespoons sesame oil
+- 1 tablespoon finely chopped coriander leaves
 
 ## Directions
 

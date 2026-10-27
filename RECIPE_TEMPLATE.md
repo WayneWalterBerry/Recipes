@@ -38,10 +38,15 @@
   ### Dish
 
   - ...
+
+  Spell out measurement units in full (e.g. "1 teaspoon", "2 tablespoons")
+  instead of abbreviating them ("tsp", "tbsp", "tbs", "Tb", etc.) — this is
+  more accessible for readers with dyslexia. Use the singular form when the
+  quantity is 1 or a fraction less than 1, and the plural form otherwise.
 -->
 
-- Ingredient one
-- Ingredient two
+- 1 teaspoon ingredient one
+- 2 tablespoons ingredient two
 
 ## Directions
 

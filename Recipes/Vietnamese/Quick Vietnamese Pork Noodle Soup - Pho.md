@@ -12,9 +12,9 @@ This is my reciepe for a fast (20 minutes of preperation) using beef base paste.
 - 4 star anise
 - 6 cloves
 - 1 cinnamon stick, 4 inch long
-- 2 Tbsp fish sauce
-- 1 rock sugar, 1 inch or 1 tsp sugar
-- 1 Tbsp ground peppercorn
+- 2 Tablespoons fish sauce
+- 1 rock sugar, 1 inch or 1 teaspoon sugar
+- 1 Tablespoon ground peppercorn
 - 10 cups water
 - 1 lb chinese BBQ Pork (from Grocery Store Deli)
 - 8 oz dried banh pho noodles

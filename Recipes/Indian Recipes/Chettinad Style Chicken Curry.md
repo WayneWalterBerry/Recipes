@@ -4,10 +4,10 @@
 
 ### Roast and make a powder
 
-- 1 1/2 tbsps coriander seeds
-- 3/4 tsp fennel seeds
-- 1/2 tsp pepper corns
-- 1/2 tsp cumin seeds
+- 1 1/2 tablespoons coriander seeds
+- 3/4 teaspoon fennel seeds
+- 1/2 teaspoon pepper corns
+- 1/2 teaspoon cumin seeds
 - 1 dry red chillies (the small mexican kind)
 - 2 cardamoms
 - 1″ cinnamon stick
@@ -16,20 +16,20 @@
 ### Make a paste
 
 - 1/2 tablespoon green chilli paste
-- 2 tablespoon ginger garlic paste
-- 1 tsp black poppy seeds
+- 2 tablespoons ginger garlic paste
+- 1 teaspoon black poppy seeds
 
 ### Main Dish
 
 - 1 kg chicken, washed and cut into medium sized pieces
 - 1 cup small shallots
 - 1 cup chopped tomatoes (1 can diced tomatoes)
-- 1/2 tsp turmeric pwd
+- 1/2 teaspoon turmeric pwd
 - 10-12 curry leaves
 - 1 cup coconut cream (from can)
 - fresh coriander leaves for garnish
-- 1 tsp kosher salt
-- 1 tbsp oil
+- 1 teaspoon kosher salt
+- 1 tablespoon oil
 
 ## Directions
 

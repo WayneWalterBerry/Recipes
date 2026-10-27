@@ -5,11 +5,11 @@ Unpeeled Russet potatoes are boiled with salt, garlic and bay, then chilled comp
 ## Ingredients
 
 - 2/3 cup white vinegar
-- 2 tsp salt
-- 1 tsp soy sauce
-- 1 tsp garlic, crushed
-- 1/4 tsp ground cumin
-- 1/4 tsp black pepper
+- 2 teaspoons salt
+- 1 teaspoon soy sauce
+- 1 teaspoon garlic, crushed
+- 1/4 teaspoon ground cumin
+- 1/4 teaspoon black pepper
 - flour, by eye
 
 ## Directions

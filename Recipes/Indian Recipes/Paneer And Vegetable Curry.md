@@ -12,15 +12,15 @@
 - 3 cloves
 - 3 cardamom pods crushed
 - 2 1 inch pieces - cinnamon stick
-- 2 tsp - ginger, minced
+- 2 teaspoons - ginger, minced
 - 1/8 teaspoon cayenne pepper
 - 1/2 teaspoon turmeric powder
-- 2 tsp - coriander powder
-- 1 tsp - cumin powder
+- 2 teaspoons - coriander powder
+- 1 teaspoon - cumin powder
 - 2 tablespoons dried fenugreek leaves
 - 11.5 oz can of diced tomatoes
 - 150 g - paneer (or other farm cheese like Queso blanco)
-- 4 tbsp - heavy cream (optional)
+- 4 tablespoons - heavy cream (optional)
 - salt to taste
 - coriander leaves and cream to garnish
 
@@ -36,7 +36,7 @@
 6. Fry till onion is golden brown.
 7. Add the ginger, mix in and cook for 30 seconds.
 8. Add the turmeric, cayenne, cumin powder and coriander powder, and 2 talesppons of water. Mix it in and cook for one minute.
-9. Add dried fenugreek leaves, tomato puree and 2 tbsp of water. Simmer gently for 5 minutes.
+9. Add dried fenugreek leaves, tomato puree and 2 tablespoons of water. Simmer gently for 5 minutes.
 10. Stir in cashew mixture and combine until it dissolves and thickens the curry.
 11. Add the cooked vegetables, paneer. Simmer for 3 minutes. Stir in the cream and remove frome fire.
 12. Garnish with coriander leaves and drizzle with a little cream.

@@ -6,16 +6,16 @@ At Casa this is made with the house red sauce, which is made with chiles de arbo
 
 - 3/4 cup sour cream
 - 1/4 cup mayonnaise
-- 1 Tb chile de arbol sauce, e.g. Tapatio
-- 1.5 tsp Worcestershire
-- 3/4 tsp New Mexico red chile powder, mild
-- 3/4 tsp garlic, crushed
-- 3/4 tsp yellow prepared mustard
-- 1/2 tsp lemon juice
-- 1/4 tsp black pepper
-- 1/4 tsp ground cumin
-- 1/4 tsp sugar
-- 1/4 tsp salt
+- 1 Tablespoon chile de arbol sauce, e.g. Tapatio
+- 1.5 teaspoons Worcestershire
+- 3/4 teaspoon New Mexico red chile powder, mild
+- 3/4 teaspoon garlic, crushed
+- 3/4 teaspoon yellow prepared mustard
+- 1/2 teaspoon lemon juice
+- 1/4 teaspoon black pepper
+- 1/4 teaspoon ground cumin
+- 1/4 teaspoon sugar
+- 1/4 teaspoon salt
 
 ## Directions
 

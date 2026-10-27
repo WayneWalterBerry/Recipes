@@ -4,14 +4,14 @@
 
 - 1 cup mixed lentils - toor, masoor, urad and moong (1/4 cup each)
 - 500 grams chicken pieces of your choice - boneless
-- 1 tsp. turmeric powder
-- 1/4 tsp. grated nutmeg
+- 1 teaspoon turmeric powder
+- 1/4 teaspoon grated nutmeg
 - 1 large bunch each of fresh coriander leaves and fenugreek leaves (approximately 150 gms/ 0.33 lbs each)
 - 1/2 bunch mint leaves (approximately 75 gms/ 0.17 lbs)
-- 1 tbsp. tamarind paste
-- 1 tbsp. garlic paste
-- 1 tbsp. ginger paste
-- 2 tbsps. vegetable/ canola/ sunflower cooking oil
+- 1 tablespoon tamarind paste
+- 1 tablespoon garlic paste
+- 1 tablespoon ginger paste
+- 2 tablespoons vegetable/ canola/ sunflower cooking oil
 - 1 liter chicken stock
 - Salt to taste
 
@@ -24,10 +24,10 @@
 - 2 large bay leaves
 - 1 star anise
 - 3 dry red chilies
-- 1 tbsp. cumin seeds
-- 1 tbsp. coriander seeds
-- 1/2 tsp. fenugreek seeds
-- 1 tsp. sesame seeds
+- 1 tablespoon cumin seeds
+- 1 tablespoon coriander seeds
+- 1/2 teaspoon fenugreek seeds
+- 1 teaspoon sesame seeds
 
 ## Directions
 

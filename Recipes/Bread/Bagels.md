@@ -6,7 +6,7 @@
 - 1 tablespoon instant yeast
 - 3 tablespoons white sugar
 - 4 1/2 cups bread flour
-- 1 1/2 teaspoon salt
+- 1 1/2 teaspoons salt
 - 2 tablespoons vegetable oil
 - 4 quarts water
 

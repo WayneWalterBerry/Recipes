@@ -5,7 +5,7 @@
 - 1 cup chicken broth
 - 3 eggs
 - 1⁄4 cup (1 large lemon) lemon juice, freshly squeezed.
-- 1⁄4 teaspoon pepper (or to taste)
+- 1⁄4 teaspoons pepper (or to taste)
 
 ## Directions
 

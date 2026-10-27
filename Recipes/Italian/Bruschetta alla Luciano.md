@@ -6,12 +6,12 @@ This is a classic Italian appetizer that is easily added to a dinner when you ar
 
 Fresh French baguette (white bread) -- not toasted
 
-- 4 Tbsp. diced Roma tomatoes
-- 1 tsp. chopped garlic.
-- 2 Tbsp. diced sweet onion
-- 2 tsp fresh basil
+- 4 Tablespoons diced Roma tomatoes
+- 1 teaspoon chopped garlic.
+- 2 Tablespoons diced sweet onion
+- 2 teaspoons fresh basil
 - Pinch of pepper
-- 1 Tbsp. olive oil.
+- 1 Tablespoon olive oil.
 - 1/4 cup grated Parmesan
 - 1/4 Gorgonzola cheese
 

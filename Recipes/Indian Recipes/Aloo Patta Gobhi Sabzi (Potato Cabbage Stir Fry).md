@@ -4,20 +4,20 @@
 
 ## Ingredients
 
-- 1 1/2 tbsps oil
-- 1 tsp black mustard seeds
-- 1/2 tsp cumin seeds
-- 1/4 tsp asafoetida
+- 1 1/2 tablespoons oil
+- 1 teaspoon black mustard seeds
+- 1/2 teaspoon cumin seeds
+- 1/4 teaspoon asafoetida
 - 4 fresh curry leaves
 - 2 teaspoons of green chilli paste
 - 2 teaspoons of ginger paste.
 - 2 potatoes, peeled and cubed
-- 1/2 tsp turmeric pwd
+- 1/2 teaspoon turmeric pwd
 - 4 cups chopped cabbage (about 1/2 a cabbage), tightly packed
-- 1/2 tsp red chili powder
-- 1 tsp coriander powder
-- 1 tsp grated jaggery or brown sugar
-- 1 tbsp lemon juice
+- 1/2 teaspoon red chili powder
+- 1 teaspoon coriander powder
+- 1 teaspoon grated jaggery or brown sugar
+- 1 tablespoon lemon juice
 - chopped coriander leaves for garnish
 
 ## Directions
